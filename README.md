@@ -1,1 +1,1 @@
-<img width="6048" height="3024" alt=" " src="https://file.garden/aOFJZUM02SFxAPgt/shanks](https://file.garden/aOFJZUM02SFxAPgt/lufandshanks)" />
+<img width="1000" height="1000" alt=" " src="https://file.garden/aOFJZUM02SFxAPgt/lufandshanks" />
